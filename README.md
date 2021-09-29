@@ -1,2 +1,2 @@
-# youngboy-is-the-goat
+# Youngboy is the Goat 
 All hail King Youngboy 🙏
